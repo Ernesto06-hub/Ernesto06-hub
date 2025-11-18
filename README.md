@@ -1,7 +1,5 @@
 <p align="center">
-  <a href="https://aminoapps.com/c/hazbinhotelamino/page/item/gifts-de-decoracion-kawaii/PJg2_jh3IdPDbVMpYwd1PYb7MgZe0D4GV">
-    Regalo kawaii 💖
-  </a>
+  <img src="https://pa1.aminoapps.com/7107/81aed9fcefca35bf533aab76df304aff39137834r1-320-115_hq.gif" width="300">
 </p>
 
 # 🌟 ¡Hola! Soy Ernesto
